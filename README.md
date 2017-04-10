@@ -1,3 +1,3 @@
 # loserstudyphp
 
-tow loser want to be winer！
+two loser want to be winer！
